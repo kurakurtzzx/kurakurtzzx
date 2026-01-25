@@ -4,7 +4,7 @@
 
 ㅤㅤㅤㅤㅤ𓂃ㅤㅤ ppl i follw ㅤㅤr ㅤmy ㅤoomfsㅤㅤᶻ 𝘇 𐰁
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ⌣⌣ㅤㅤtsukasa|randalㅤ kin
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ⌣⌣ㅤㅤtsukasa|randalㅤ kin ![Image](https://github.com/user-attachments/assets/b182b2a4-1d22-49f3-bae3-6b711eca2084)
 
 
 
