@@ -2,7 +2,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/117f3ae0-edb9-4c66-b1a0-9e5fa631323f)ㅤㅤㅤi like regisㅤㅤദ്ദി๑>؂•̀๑)
 
-ㅤㅤㅤㅤㅤ𓂃ㅤㅤ ppl i follw ㅤㅤr ㅤmy ㅤoomfsㅤㅤᶻ 𝘇 𐰁
+ㅤㅤㅤㅤㅤ𓂃ㅤㅤ ppl i follwㅤㅤr ㅤㅤoomfsㅤㅤ/coolㅤguys  ㅤㅤ 𝘇 𐰁
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ⌣⌣ㅤㅤtsukasa|randalㅤ kin ![Image](https://github.com/user-attachments/assets/b182b2a4-1d22-49f3-bae3-6b711eca2084)
 
